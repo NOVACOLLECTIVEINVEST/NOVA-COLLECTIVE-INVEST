@@ -1,0 +1,2 @@
+# NOVA-COLLECTIVE-INVEST
+NOVA COLLECTIVE INVEST - Invest Together. Grow Forever.
